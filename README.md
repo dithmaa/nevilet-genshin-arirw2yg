@@ -1,1 +1,0 @@
-# nevilet-genshin-arirw2yg
